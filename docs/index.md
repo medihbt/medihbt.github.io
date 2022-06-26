@@ -1,3 +1,0 @@
-# I'm Medi.<br/>This is me.
-
-高考之后，敬请期待...
